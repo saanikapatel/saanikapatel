@@ -5,7 +5,6 @@
 
 - 📫 How to reach me **saanikapatel07@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1WD-TFpYx8bwaN3SRb_pN0V0g30hfjcgy?usp=sharing](https://drive.google.com/drive/folders/1WD-TFpYx8bwaN3SRb_pN0V0g30hfjcgy?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
